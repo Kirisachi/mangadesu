@@ -1,0 +1,2 @@
+# mangadesu
+https://mangadesu.moe
